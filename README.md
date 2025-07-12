@@ -22,3 +22,17 @@
 
 ![ter](./IMGS/ter8.jpg)
 
+![ter](./IMGS/ter9.jpg)
+
+![ter](./IMGS/ter10.jpg)
+
+![ter](./IMGS/ter11.jpg)
+
+![ter](./IMGS/ter12.jpg)
+
+![ter](./IMGS/ter13.jpg)
+
+![ter](./IMGS/ter15.jpg)
+
+![ter](./IMGS/ter16.jpg)
+
