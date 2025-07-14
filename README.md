@@ -36,3 +36,24 @@
 
 ![ter](./IMGS/ter16.jpg)
 
+![ter](./IMGS/ter17.jpg)
+
+![ter](./IMGS/ter18.jpg)
+
+![ter](./IMGS/ter20.jpg)
+
+![ter](./IMGS/ter21.jpg)
+
+![ter](./IMGS/ter22.jpg)
+
+![ter](./IMGS/ter23.jpg)
+
+![ter](./IMGS/ter25.jpg)
+
+![ter](./IMGS/ter24.jpg)
+
+![ter](./IMGS/ter26.jpg)
+
+![ter](./IMGS/ter27.jpg)
+
+![ter](./IMGS/ter28.jpg)
